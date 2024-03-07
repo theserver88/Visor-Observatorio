@@ -1,2 +1,0 @@
-# Mapa-dinamico--Integral-
- 
